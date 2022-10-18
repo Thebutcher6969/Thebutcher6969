@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @Thebutcher6969
-- 👀 I’m interested in music & girls...
-- 🌱 I’m currently learning how to make melbourne bounce ...
-- 💞️ I’m looking to collaborate on with some experts in the field...
-- 📫 How to reach me email me at dawellenz69@gmail.com ...
-
-<!---
+Hello EVERBODY I Am _TheButcher_ 
+>i am a DJ & Producer
+music genre i prefer is hardcore/frenchcore & hardtechno & i am a Booty Lover give me some CURVY Womans 
+im looking for some experts or other djs to teach me some more skills .
 Thebutcher6969/Thebutcher6969 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
